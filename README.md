@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @umar77x
+- 👀 I’m interested in crypto and trading 
+- 🌱 I’m currently learning 365 days
+- 💞️ I’m looking to collaborate on books and toy cars
